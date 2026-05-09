@@ -1,4 +1,4 @@
-
+Enhance Pixelmator Pro for macOS with elite Automation for Pixelmator Pro for macOS - real-time preview and shortcut customization, the #1 automation. Includes real-time preview
 
 
 
